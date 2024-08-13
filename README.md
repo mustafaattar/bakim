@@ -1,0 +1,2 @@
+# bakim
+batc kodudur
